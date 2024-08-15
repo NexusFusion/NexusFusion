@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on making game cheats.
-- 📫 How to reach me (marklane@stpaulflint.com) or (nexus.fusion.business@gmail.com)
+- 📫 How to reach me (infiiscomingherenow@gmail.com) or (mark.lane001@icloud.com)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a good hacker.
 
